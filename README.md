@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><strong>Nesine Casino</strong></strong></h1>
+<h1 dir="ltr"><strong><strong>Nesine casino - Türkiye'de oynamak için</strong></strong></h1>
 <p>&nbsp;</p>
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Nesine casino oyna </u></a></strong></p>
 Nesine Casino, çevrimiçi oyun dünyasında dikkat çeken bir platformdur. Web sitesi nesine.com üzerinden erişilebilen bu casino, Curaçao lisansına sahiptir ve güvenli bir oyun deneyimi sunmaktadır. 
